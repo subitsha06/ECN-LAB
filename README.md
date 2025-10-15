@@ -24,6 +24,14 @@
 
 **CIRCUIT DIAGRAM:**
 
+![WhatsApp Image 2025-10-15 at 21 23 01_95bd1101](https://github.com/user-attachments/assets/55ad15c7-32e8-4672-826b-32be4f8a2b62)
+
+![WhatsApp Image 2025-10-15 at 21 23 32_2d0e4051](https://github.com/user-attachments/assets/7a682e43-eb0d-45f4-b381-305459275263)
+![WhatsApp Image 2025-10-15 at 21 23 01_282e1846](https://github.com/user-attachments/assets/6c827a6f-e050-4c8a-8e65-145f055b8404)
+![IMG-20251015-WA0041](https://github.com/user-attachments/assets/ee963f76-3602-47e6-903d-34ae82d54aaf)
+
+
+
 
 
 
